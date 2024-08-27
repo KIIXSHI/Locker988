@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @Locker988
+- 👋 Hi, I’m Zaki
 - 👀 I’m interested in gaming
-- 🌱 I’m currently learning java scrips
 - 📫 How to reach me "discord" zakiw26 is my username
 - 😄 Pronouns: he / him
 - ⚡ Fun fact: i like Roblox The Strongest Battlegrounds
